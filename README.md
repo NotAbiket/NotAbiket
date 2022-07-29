@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NotAbiket
+- 👀 I’m interested in explore coding
+- 🌱 I’m currently learning computer science
+- 📫 How to reach me bkpaf213@staugustineday.com
